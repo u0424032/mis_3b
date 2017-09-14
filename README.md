@@ -9,4 +9,4 @@
 
 ![](七瀨.jpg "七瀨")
 
-[![(http://pics.ee/v-1736855)]](https://www.youtube.com/watch?v=_6CZ8CfwBU0&index=1&list=LL91f_wFgAilz_UvcuqCHYbA "")
+[![(http://img.youtube.com/vi/_6CZ8CfwBU0&index/01.jpg)]](https://www.youtube.com/watch?v=_6CZ8CfwBU0&index=1&list=LL91f_wFgAilz_UvcuqCHYbA "")
